@@ -1,4 +1,4 @@
-
+Enhance Fantastical for macOS with professional Fantastical for macOS Integration | cloud backup + dark mode, the #1 integration. Includes cloud backup and dark mode for a
 
 
 
